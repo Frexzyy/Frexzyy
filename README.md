@@ -1,9 +1,6 @@
-### Futuro Empresario 💸
+### O FUTURO ESTA AGORA 💸
 
-Meu nome é Gabriel
-
-Atuo em 5 negócios sendo na gringa e no br
-
+Naldo aqui 
 
 # Qualquer coisa é só me chamar
 
